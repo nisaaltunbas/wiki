@@ -1,0 +1,1 @@
+Strength training is my favorite exercise!!!
